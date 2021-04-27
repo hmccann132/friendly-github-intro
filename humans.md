@@ -9,8 +9,8 @@
 
 ### Participants
 
-* 
-* 
+* Arielle Bennett
+* Harriet McCann
 * 
 * 
 * 
